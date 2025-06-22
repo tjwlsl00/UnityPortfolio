@@ -1,4 +1,4 @@
-「ゲーム動画URL更新」
+「ゲーム動画URL更新-6/22」
 --
 https://youtu.be/KkQ-EBrx-as
 
