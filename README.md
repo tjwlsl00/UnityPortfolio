@@ -1,4 +1,4 @@
-「一番最新のゲーム動画URL 」
+「更新ゲーム動画URL 」
 --
 https://youtu.be/KkQ-EBrx-as
 
