@@ -1,5 +1,6 @@
 「一番最新のゲーム動画URL 」
 --
+https://youtu.be/KkQ-EBrx-as
 
 
 
