@@ -1,4 +1,4 @@
-「更新ゲーム動画URL 」
+「ゲーム動画URL更新」
 --
 https://youtu.be/KkQ-EBrx-as
 
