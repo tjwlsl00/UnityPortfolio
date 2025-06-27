@@ -6,6 +6,7 @@ https://youtu.be/BOsvw60EQ6Y
 「ゲームタイトル 」
 --
 Throne of Ruins　廃墟の王座
+「開発期間：5月０１日～8月下旬（見込み）」
 
 
 「ゲームテーマ 」
@@ -38,9 +39,6 @@ Throne of Ruins　廃墟の王座
 ４. Dungeon2 (Goblin)
 
 内容： Dungeon1と同じ
-
-「開発期間：5月０１日～8月下旬（見込み）」
---
 
 「最終コンテンツ」
 --
