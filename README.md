@@ -1,7 +1,11 @@
-「ゲーム動画URL更新-6/22」
+ゲーム再生動画URL 6月27日更新
 --
-https://youtu.be/KkQ-EBrx-as
+https://youtu.be/BOsvw60EQ6Y
 
+
+「ゲームタイトル 」
+--
+Throne of Ruins　廃墟の王座
 
 
 「ゲームテーマ 」
