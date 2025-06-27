@@ -5,8 +5,7 @@ https://youtu.be/BOsvw60EQ6Y
 
 「ゲームタイトル 」
 --
-Throne of Ruins　廃墟の王座
-「開発期間：5月０１日～8月下旬（見込み）」
+Throne of Ruins　廃墟の王座／開発期間：5月０１日～8月下旬（見込み）
 
 
 「ゲームテーマ 」
