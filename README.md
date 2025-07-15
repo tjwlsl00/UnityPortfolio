@@ -1,6 +1,6 @@
-ゲーム再生動画URL ７月０５日　更新
+ゲーム再生動画URL ７月１５日　更新
 --
-[https://youtu.be/BOsvw60EQ6Y](https://youtu.be/08tOcHfghXQ)
+https://www.youtube.com/watch?v=U_1SCqz6c80&ab_channel=%EB%B0%95%EC%84%9C%EC%A7%84
 
 
 「ゲームタイトル 」
